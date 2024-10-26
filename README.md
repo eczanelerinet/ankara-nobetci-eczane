@@ -12,4 +12,4 @@
 - Anakra Etimesgut nöbetçi eczaneleri [https://ankara.eczaneleri.net/etimesgut-nobetci-eczaneleri](https://ankara.eczaneleri.net/etimesgut-nobetci-eczaneleri)
 
 <h3 align="left">Connect with me:</h3>
-<p align="left"> [https://eczaneleri.net/](https://eczaneleri.net/) </p>
+<p align="left"> https://eczaneleri.net/ </p>
