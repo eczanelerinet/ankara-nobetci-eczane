@@ -3,13 +3,13 @@
 
 - Ankara nöbetçi eczaneleri [https://ankara.eczaneleri.net/](https://ankara.eczaneleri.net/)
 
-- Anakra Gölbaşı nöbetçi eczaneleri [https://ankara.eczaneleri.net/golbasi-nobetci-eczaneleri](https://ankara.eczaneleri.net/golbasi-nobetci-eczaneleri)
+- Ankara Gölbaşı nöbetçi eczaneleri [https://ankara.eczaneleri.net/golbasi-nobetci-eczaneleri](https://ankara.eczaneleri.net/golbasi-nobetci-eczaneleri)
 
-- Anakra Antındağ nöbetçi eczaneleri [https://ankara.eczaneleri.net/altindag-nobetci-eczaneleri](https://ankara.eczaneleri.net/altindag-nobetci-eczaneleri)
+- Ankara Antındağ nöbetçi eczaneleri [https://ankara.eczaneleri.net/altindag-nobetci-eczaneleri](https://ankara.eczaneleri.net/altindag-nobetci-eczaneleri)
 
-- Anakra Çankaya nöbetçi eczaneleri [https://ankara.eczaneleri.net/cankaya-nobetci-eczaneleri](https://ankara.eczaneleri.net/cankaya-nobetci-eczaneleri)
+- Ankara Çankaya nöbetçi eczaneleri [https://ankara.eczaneleri.net/cankaya-nobetci-eczaneleri](https://ankara.eczaneleri.net/cankaya-nobetci-eczaneleri)
 
-- Anakra Etimesgut nöbetçi eczaneleri [https://ankara.eczaneleri.net/etimesgut-nobetci-eczaneleri](https://ankara.eczaneleri.net/etimesgut-nobetci-eczaneleri)
+- Ankara Etimesgut nöbetçi eczaneleri [https://ankara.eczaneleri.net/etimesgut-nobetci-eczaneleri](https://ankara.eczaneleri.net/etimesgut-nobetci-eczaneleri)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left"> https://eczaneleri.net/ </p>
